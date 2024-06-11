@@ -10,7 +10,8 @@
 
 - 📫 How to reach me **sriv.ansh@outlook.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TLnrJi1giojTyvuYDQDb8hW1tCd7Ub-K/view?usp=share_link](https://drive.google.com/file/d/1TLnrJi1giojTyvuYDQDb8hW1tCd7Ub-K/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1TLnrJi1giojTyvuYDQDb8hW1tCd7Ub-K/view?usp=share_link]
+
 
 - ⚡ Fun fact **I think I am Stupid**
 
