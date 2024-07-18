@@ -10,6 +10,9 @@
 
 - 📫 How to reach me **sriv.ansh@outlook.com**
 
+- 🎯 LinkedIn **https://www.linkedin.com/in/ansh-srivastava** 
+
+
 - 📄 Know about my experiences [https://drive.google.com/file/d/19uLSP7Hd0C1AatHEHJh4TlTTB9AopwNp/view?usp=sharing]
 
 
