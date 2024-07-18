@@ -6,11 +6,11 @@
 
 - 🌱 I’m currently learning **Data Science**
 
-- 💬 Ask me about **Python Basic, Oop**
+- 💬 Ask me about **Python Basic, Oop, SQL,Excel, ML-Model**
 
 - 📫 How to reach me **sriv.ansh@outlook.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TLnrJi1giojTyvuYDQDb8hW1tCd7Ub-K/view?usp=share_link]
+- 📄 Know about my experiences [https://drive.google.com/file/d/19uLSP7Hd0C1AatHEHJh4TlTTB9AopwNp/view?usp=sharing]
 
 
 - ⚡ Fun fact **I think I am Stupid**
